@@ -1,4 +1,4 @@
-
+be a lucky block stealth Script invisibility plus instant win is the best be a lucky block Script, featuring invisibility and instant win. Safe and
 
 
 ---
